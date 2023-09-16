@@ -1,1 +1,0 @@
-# https-RanerD.github.io
